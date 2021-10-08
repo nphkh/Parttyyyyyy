@@ -23,3 +23,9 @@ Bagley Lakes - Moderate 2.2 miles , 259 ft Loop https://www.wta.org/go-hiking/hi
 Heather Meadows and Artists Point Trail - Easy 2.9 miles loop
 Table Mountain - Moderate 2.4 miles - 2-4h
 
+Ai thich di trail de thi trail de, khong thi moderate. Tam 3-4h lai xe quay ve cabin. Option an trua o Chair 9 Pizza & Bar
+
+Oct 10
+
+Pack do dac di ve. An trua o Lynnwood :D
+
